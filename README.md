@@ -1,0 +1,4 @@
+- 👋 Hi, I’m To'laganov Ma'murjon
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning Java
+- 📫 How to reach me studentx177@tuit.uz
